@@ -1,1 +1,1 @@
-Slugs have four noses.
+Tigers have striped skin, not just striped fur.

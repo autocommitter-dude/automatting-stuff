@@ -1,1 +1,1 @@
-A bolt of lightning travels at about 270,000 mph.
+Sharks are the only fish that can blink with both eyes.

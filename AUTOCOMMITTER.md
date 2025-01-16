@@ -1,1 +1,1 @@
-Tigers have striped skin, not just striped fur.
+A bolt of lightning travels at about 270,000 mph.

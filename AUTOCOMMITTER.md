@@ -1,1 +1,1 @@
-Sharks are the only fish that can blink with both eyes.
+Water can boil and freeze at the same time — it’s called the triple point.

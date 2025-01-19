@@ -1,1 +1,1 @@
-Scotland has 421 words for "snow."
+A snail can grow back its eye if it gets cut off.

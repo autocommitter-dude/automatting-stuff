@@ -1,1 +1,1 @@
-A snail can grow back its eye if it gets cut off.
+Octopuses have nine brains.

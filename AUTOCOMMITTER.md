@@ -1,1 +1,1 @@
-Octopuses have nine brains.
+A group of ferrets is called a "business."

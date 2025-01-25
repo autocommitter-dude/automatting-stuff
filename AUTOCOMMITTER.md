@@ -1,1 +1,1 @@
-Pigeons can do math.
+Coca-Cola would be green without coloring.

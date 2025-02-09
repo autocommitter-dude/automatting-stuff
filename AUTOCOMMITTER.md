@@ -1,1 +1,1 @@
-A group of ferrets is called a "business."
+Cows have best friends and get stressed when separated.

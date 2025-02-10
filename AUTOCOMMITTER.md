@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+A day on Earth used to be only 18 hours long.

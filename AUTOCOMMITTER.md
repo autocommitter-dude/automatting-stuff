@@ -1,1 +1,1 @@
-A group of crows is called a murder.
+Snails can sleep for three years at a time.

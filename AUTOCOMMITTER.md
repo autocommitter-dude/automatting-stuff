@@ -1,1 +1,1 @@
-You burn more calories sleeping than watching TV.
+A group of ferrets is called a "business."

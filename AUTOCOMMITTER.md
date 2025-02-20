@@ -1,1 +1,1 @@
-Snails can sleep for three years at a time.
+Chewing gum while cutting onions can help prevent tears.

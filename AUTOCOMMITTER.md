@@ -1,1 +1,1 @@
-You can hear a blue whale’s heartbeat from over 2 miles away.
+You burn more calories sleeping than watching TV.

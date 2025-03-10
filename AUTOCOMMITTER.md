@@ -1,1 +1,1 @@
-The Eiffel Tower can grow more than 6 inches in summer due to heat expansion.
+A bolt of lightning strikes somewhere on Earth 100 times every second.

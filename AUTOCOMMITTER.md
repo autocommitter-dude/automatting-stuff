@@ -1,1 +1,1 @@
-The word "strengths" is the longest word with one vowel.
+The word "bookkeeper" has three consecutive double letters.

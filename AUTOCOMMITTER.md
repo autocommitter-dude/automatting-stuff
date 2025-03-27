@@ -1,1 +1,1 @@
-The word "bookkeeper" has three consecutive double letters.
+Worms can have up to five hearts.

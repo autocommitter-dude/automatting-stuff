@@ -1,1 +1,1 @@
-Worms can have up to five hearts.
+The inventor of the Pringles can is buried in one.

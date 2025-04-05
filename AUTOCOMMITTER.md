@@ -1,1 +1,1 @@
-Alaska is the state with the highest percentage of people who walk to work.
+It rains diamonds on Jupiter and Saturn.

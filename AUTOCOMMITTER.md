@@ -1,1 +1,1 @@
-Coca-Cola would be green without coloring.
+A planet exists where it rains molten glass sideways.

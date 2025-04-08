@@ -1,1 +1,1 @@
-It rains diamonds on Jupiter and Saturn.
+Humans share about 60% of their DNA with bananas.

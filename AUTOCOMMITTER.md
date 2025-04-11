@@ -1,1 +1,1 @@
-Antarctica is the only continent without reptiles.
+Alaska is the state with the highest percentage of people who walk to work.

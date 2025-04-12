@@ -1,1 +1,1 @@
-It rains diamonds on Jupiter and Saturn.
+Some cats are allergic to humans.

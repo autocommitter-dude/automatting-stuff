@@ -1,1 +1,1 @@
-Octopuses have three hearts.
+Coca-Cola would be green without coloring.

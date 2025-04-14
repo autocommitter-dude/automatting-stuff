@@ -1,1 +1,1 @@
-A planet exists where it rains molten glass sideways.
+Peanuts aren’t nuts — they’re legumes.

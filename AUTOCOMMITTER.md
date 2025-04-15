@@ -1,1 +1,1 @@
-A snail can grow back its eye if it gets cut off.
+There are more stars in the universe than grains of sand on Earth.

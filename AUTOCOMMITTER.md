@@ -1,1 +1,1 @@
-Sharks existed before trees.
+The hashtag symbol used to be called the pound sign.

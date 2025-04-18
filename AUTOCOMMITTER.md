@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+The first oranges weren’t orange — they were green.

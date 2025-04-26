@@ -1,1 +1,1 @@
-You can’t hum while holding your nose closed.
+The tongue is the only muscle in the body attached from one end.

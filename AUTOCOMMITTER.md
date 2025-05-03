@@ -1,1 +1,1 @@
-The tongue is the only muscle in the body attached from one end.
+There are more stars in the universe than grains of sand on Earth.

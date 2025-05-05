@@ -1,1 +1,1 @@
-Mantis shrimp can punch with the speed of a bullet.
+Bubble wrap was originally intended to be wallpaper.

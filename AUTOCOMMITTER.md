@@ -1,1 +1,1 @@
-Bubble wrap was originally intended to be wallpaper.
+Cows moo with regional accents.

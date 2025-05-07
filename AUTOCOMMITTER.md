@@ -1,1 +1,1 @@
-You burn more calories sleeping than watching TV.
+Alaska is the state with the highest percentage of people who walk to work.

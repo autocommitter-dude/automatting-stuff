@@ -1,1 +1,1 @@
-There are more stars in the universe than grains of sand on Earth.
+Humans are bioluminescent — we glow, but our eyes can’t detect it.

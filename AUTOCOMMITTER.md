@@ -1,1 +1,1 @@
-Humans are bioluminescent — we glow, but our eyes can’t detect it.
+Mantis shrimp can punch with the speed of a bullet.

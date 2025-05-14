@@ -1,1 +1,1 @@
-Alaska is the state with the highest percentage of people who walk to work.
+The word "bookkeeper" has three consecutive double letters.

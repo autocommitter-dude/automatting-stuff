@@ -1,1 +1,1 @@
-You burn more calories sleeping than watching TV.
+Sharks are the only fish that can blink with both eyes.

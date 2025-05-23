@@ -1,1 +1,1 @@
-A bolt of lightning strikes somewhere on Earth 100 times every second.
+A bolt of lightning is hotter than the surface of the sun.

@@ -1,1 +1,1 @@
-Your brain uses the same amount of power as a 10-watt lightbulb.
+The human stomach gets a new lining every few days.

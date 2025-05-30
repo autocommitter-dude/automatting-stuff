@@ -1,1 +1,1 @@
-A bolt of lightning is hotter than the surface of the sun.
+A group of crows is called a murder.

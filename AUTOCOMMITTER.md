@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+Pineapples take two years to grow.

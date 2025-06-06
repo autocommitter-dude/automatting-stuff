@@ -1,1 +1,1 @@
-Pineapples take two years to grow.
+Newborns don’t shed tears until about two weeks old.

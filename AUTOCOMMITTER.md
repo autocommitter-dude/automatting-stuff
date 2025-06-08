@@ -1,1 +1,1 @@
-Tomatoes have more genes than humans.
+The first oranges weren’t orange — they were green.

@@ -1,1 +1,1 @@
-Birds don’t urinate.
+Goats have rectangular pupils.

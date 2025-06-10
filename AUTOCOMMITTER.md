@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+Most wasabi isn’t real wasabi — it’s colored horseradish.

@@ -1,1 +1,1 @@
-Humans are the only animals with chins.
+Birds don’t urinate.

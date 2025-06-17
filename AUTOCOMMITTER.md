@@ -1,1 +1,1 @@
-Most wasabi isn’t real wasabi — it’s colored horseradish.
+Your taste buds have a lifespan of about 10 days.

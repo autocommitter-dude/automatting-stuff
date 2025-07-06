@@ -1,1 +1,1 @@
-Newborns don’t shed tears until about two weeks old.
+A jiffy is an actual unit of time — 1/100th of a second.

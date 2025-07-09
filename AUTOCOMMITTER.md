@@ -1,1 +1,1 @@
-lemons float in water but limes sink.
+Sea otters hold hands when they sleep to avoid drifting apart.

@@ -1,1 +1,1 @@
-A group of flamingos is called a "flamboyance."
+The hashtag symbol used to be called the pound sign.

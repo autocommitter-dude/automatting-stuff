@@ -1,1 +1,1 @@
-A narwhal’s tusk reveals its health and diet.
+Elephants are the only animals that can’t jump.

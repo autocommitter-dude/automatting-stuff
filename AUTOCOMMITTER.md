@@ -1,1 +1,1 @@
-Sharks existed before trees.
+Antarctica is the only continent without reptiles.

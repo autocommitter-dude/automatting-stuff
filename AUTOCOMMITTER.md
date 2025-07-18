@@ -1,1 +1,1 @@
-Elephants are the only animals that can’t jump.
+An apple, potato, and onion all taste the same if you eat them with your nose plugged.

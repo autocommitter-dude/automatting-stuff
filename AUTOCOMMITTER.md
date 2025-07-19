@@ -1,1 +1,1 @@
-Wombat poop is cube-shaped.
+The inventor of the Pringles can is buried in one.

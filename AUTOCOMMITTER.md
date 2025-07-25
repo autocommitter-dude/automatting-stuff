@@ -1,1 +1,1 @@
-Wombat poop is cube-shaped.
+Newborns don’t shed tears until about two weeks old.

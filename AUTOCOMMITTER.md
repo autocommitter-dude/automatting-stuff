@@ -1,1 +1,1 @@
-Antarctica is the only continent without reptiles.
+Tomatoes have more genes than humans.

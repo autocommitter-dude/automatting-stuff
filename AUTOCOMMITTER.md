@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+Sea otters hold hands when they sleep to avoid drifting apart.

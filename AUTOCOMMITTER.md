@@ -1,1 +1,1 @@
-The first oranges weren’t orange — they were green.
+Cows have best friends and get stressed when separated.

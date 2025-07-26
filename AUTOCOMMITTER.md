@@ -1,1 +1,1 @@
-Tomatoes have more genes than humans.
+Sharks are the only fish that can blink with both eyes.

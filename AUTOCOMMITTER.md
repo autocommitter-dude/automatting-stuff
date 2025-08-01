@@ -1,1 +1,1 @@
-Newborns don’t shed tears until about two weeks old.
+Humans share about 60% of their DNA with bananas.

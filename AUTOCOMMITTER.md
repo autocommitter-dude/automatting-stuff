@@ -1,1 +1,1 @@
-Humans share about 60% of their DNA with bananas.
+The first oranges weren’t orange — they were green.

@@ -1,1 +1,1 @@
-Sea otters hold hands when they sleep to avoid drifting apart.
+It rains diamonds on Jupiter and Saturn.

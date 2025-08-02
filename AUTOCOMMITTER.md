@@ -1,1 +1,1 @@
-It rains diamonds on Jupiter and Saturn.
+Octopuses have nine brains.

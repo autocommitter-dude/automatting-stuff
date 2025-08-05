@@ -1,1 +1,1 @@
-The wood frog can hold its pee for up to eight months.
+The word "strengths" is the longest word with one vowel.

@@ -1,1 +1,1 @@
-An apple, potato, and onion all taste the same if you eat them with your nose plugged.
+A group of crows is called a murder.

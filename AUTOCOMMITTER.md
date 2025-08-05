@@ -1,1 +1,1 @@
-The word "strengths" is the longest word with one vowel.
+There are more fake flamingos in the world than real ones.

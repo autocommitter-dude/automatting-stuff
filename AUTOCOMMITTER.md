@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+A narwhal’s tusk reveals its health and diet.

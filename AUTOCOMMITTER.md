@@ -1,1 +1,1 @@
-A narwhal’s tusk reveals its health and diet.
+There’s a species of jellyfish that can live forever.

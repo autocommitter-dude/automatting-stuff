@@ -1,1 +1,1 @@
-Chewing gum while cutting onions can help prevent tears.
+Pineapples take two years to grow.

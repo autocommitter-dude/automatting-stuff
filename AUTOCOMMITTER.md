@@ -1,1 +1,1 @@
-Pineapples take two years to grow.
+A bolt of lightning strikes somewhere on Earth 100 times every second.

@@ -1,1 +1,1 @@
-Water can boil and freeze at the same time — it’s called the triple point.
+A jiffy is an actual unit of time — 1/100th of a second.

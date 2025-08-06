@@ -1,1 +1,1 @@
-Bees sometimes sting other bees.
+Chewing gum while cutting onions can help prevent tears.

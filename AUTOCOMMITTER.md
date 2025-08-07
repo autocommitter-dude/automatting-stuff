@@ -1,1 +1,1 @@
-The inventor of the Pringles can is buried in one.
+Humans are bioluminescent — we glow, but our eyes can’t detect it.

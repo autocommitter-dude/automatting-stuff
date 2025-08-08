@@ -1,1 +1,1 @@
-Cows have best friends and get stressed when separated.
+Koalas have fingerprints that are nearly identical to humans.

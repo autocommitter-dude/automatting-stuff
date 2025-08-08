@@ -1,1 +1,1 @@
-A group of porcupines is called a "prickle."
+Sea otters hold hands when they sleep to avoid drifting apart.

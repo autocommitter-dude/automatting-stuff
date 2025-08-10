@@ -1,1 +1,1 @@
-A human could swim through a blue whale’s arteries.
+Humans are the only animals with chins.

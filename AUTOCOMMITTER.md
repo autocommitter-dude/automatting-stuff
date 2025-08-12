@@ -1,1 +1,1 @@
-Antarctica is the only continent without reptiles.
+Humans share about 60% of their DNA with bananas.

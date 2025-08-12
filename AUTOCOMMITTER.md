@@ -1,1 +1,1 @@
-The human stomach gets a new lining every few days.
+Water can boil and freeze at the same time — it’s called the triple point.

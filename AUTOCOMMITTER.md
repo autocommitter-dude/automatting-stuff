@@ -1,1 +1,1 @@
-Wombat poop is cube-shaped.
+Coca-Cola would be green without coloring.

@@ -1,1 +1,1 @@
-Humans share about 60% of their DNA with bananas.
+A bolt of lightning is hotter than the surface of the sun.

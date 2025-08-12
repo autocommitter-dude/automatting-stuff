@@ -1,1 +1,1 @@
-A bolt of lightning is hotter than the surface of the sun.
+The inventor of the Pringles can is buried in one.

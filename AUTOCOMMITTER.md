@@ -1,1 +1,1 @@
-Peanuts aren’t nuts — they’re legumes.
+The human stomach gets a new lining every few days.

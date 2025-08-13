@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+Snails can sleep for three years at a time.

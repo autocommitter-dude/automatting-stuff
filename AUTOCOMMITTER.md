@@ -1,1 +1,1 @@
-A bolt of lightning strikes somewhere on Earth 100 times every second.
+You can hear a blue whale’s heartbeat from over 2 miles away.

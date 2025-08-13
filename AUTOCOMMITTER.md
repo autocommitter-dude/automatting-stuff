@@ -1,1 +1,1 @@
-Snails can sleep for three years at a time.
+The average person walks the equivalent of five times around the world in a lifetime.

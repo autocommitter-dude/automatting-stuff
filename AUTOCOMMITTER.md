@@ -1,1 +1,1 @@
-The average person walks the equivalent of five times around the world in a lifetime.
+Cows have best friends and get stressed when separated.

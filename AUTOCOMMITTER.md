@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+Octopuses taste with their arms.

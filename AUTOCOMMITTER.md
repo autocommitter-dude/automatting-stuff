@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+Humans are bioluminescent — we glow, but our eyes can’t detect it.

@@ -1,1 +1,1 @@
-Chewing gum while cutting onions can help prevent tears.
+Humans are the only animals with chins.

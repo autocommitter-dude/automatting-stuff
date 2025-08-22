@@ -1,1 +1,1 @@
-Octopuses taste with their arms.
+There are more fake flamingos in the world than real ones.

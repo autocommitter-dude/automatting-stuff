@@ -1,1 +1,1 @@
-Humans are the only animals with chins.
+A group of flamingos is called a "flamboyance."

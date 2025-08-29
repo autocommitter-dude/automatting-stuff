@@ -1,1 +1,1 @@
-There are more fake flamingos in the world than real ones.
+Tigers have striped skin, not just striped fur.

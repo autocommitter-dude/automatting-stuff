@@ -1,1 +1,1 @@
-Tigers have striped skin, not just striped fur.
+Wombat poop is cube-shaped.

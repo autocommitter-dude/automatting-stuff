@@ -1,1 +1,1 @@
-A group of flamingos is called a "flamboyance."
+A human could swim through a blue whale’s arteries.

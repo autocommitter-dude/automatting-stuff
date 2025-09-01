@@ -1,1 +1,1 @@
-Sea otters hold hands when they sleep to avoid drifting apart.
+Your brain uses the same amount of power as a 10-watt lightbulb.

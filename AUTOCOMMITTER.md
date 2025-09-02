@@ -1,1 +1,1 @@
-Slugs have four noses.
+The inventor of the Pringles can is buried in one.

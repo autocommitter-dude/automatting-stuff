@@ -1,1 +1,1 @@
-The word "bookkeeper" has three consecutive double letters.
+The tongue is the only muscle in the body attached from one end.

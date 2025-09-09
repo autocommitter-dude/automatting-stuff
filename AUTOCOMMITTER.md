@@ -1,1 +1,1 @@
-The inventor of the Pringles can is buried in one.
+Sea otters hold hands when they sleep to avoid drifting apart.

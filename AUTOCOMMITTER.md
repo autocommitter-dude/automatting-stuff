@@ -1,1 +1,1 @@
-Octopuses have three hearts.
+Slugs have four noses.

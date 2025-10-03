@@ -1,1 +1,1 @@
-The longest hiccuping spree lasted 68 years.
+The hashtag symbol is technically called an octothorpe.

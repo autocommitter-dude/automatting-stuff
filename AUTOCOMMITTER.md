@@ -1,1 +1,1 @@
-Slugs have four noses.
+A bolt of lightning strikes somewhere on Earth 100 times every second.

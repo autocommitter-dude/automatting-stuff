@@ -1,1 +1,1 @@
-The unicorn is the national animal of Scotland.
+Octopuses have three hearts.

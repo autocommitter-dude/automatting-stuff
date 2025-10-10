@@ -1,1 +1,1 @@
-The hashtag symbol is technically called an octothorpe.
+Alaska is the state with the highest percentage of people who walk to work.

@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+Avocados are toxic to birds.

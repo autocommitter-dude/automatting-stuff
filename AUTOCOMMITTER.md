@@ -1,1 +1,1 @@
-Birds don’t urinate.
+Frogs absorb water through their skin — they don’t drink it.

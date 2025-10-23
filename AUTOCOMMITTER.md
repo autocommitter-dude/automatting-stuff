@@ -1,1 +1,1 @@
-The first oranges weren’t orange — they were green.
+Pineapples take two years to grow.

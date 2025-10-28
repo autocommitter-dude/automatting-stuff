@@ -1,1 +1,1 @@
-Avocados are toxic to birds.
+Birds don’t urinate.

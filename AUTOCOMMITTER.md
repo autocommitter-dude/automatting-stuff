@@ -1,1 +1,1 @@
-Octopuses have nine brains.
+One spaghetti noodle is called a spaghetto.

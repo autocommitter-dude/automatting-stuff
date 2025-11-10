@@ -1,1 +1,1 @@
-Butterflies can taste with their feet.
+Cows have best friends and get stressed when separated.

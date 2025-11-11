@@ -1,1 +1,1 @@
-The hashtag symbol used to be called the pound sign.
+Humans are bioluminescent — we glow, but our eyes can’t detect it.

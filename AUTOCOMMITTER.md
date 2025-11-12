@@ -1,1 +1,1 @@
-The tongue is the only muscle in the body attached from one end.
+A human could swim through a blue whale’s arteries.

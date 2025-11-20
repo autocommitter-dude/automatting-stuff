@@ -1,1 +1,1 @@
-Humans glow in the dark — very faintly.
+It rains diamonds on Jupiter and Saturn.

@@ -1,1 +1,1 @@
-It rains diamonds on Jupiter and Saturn.
+Mantis shrimp can punch with the speed of a bullet.

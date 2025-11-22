@@ -1,1 +1,1 @@
-Mantis shrimp can punch with the speed of a bullet.
+Humans glow in the dark — very faintly.

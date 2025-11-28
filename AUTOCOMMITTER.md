@@ -1,1 +1,1 @@
-Humans glow in the dark — very faintly.
+Bees sometimes sting other bees.

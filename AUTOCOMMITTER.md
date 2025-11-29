@@ -1,1 +1,1 @@
-Bees sometimes sting other bees.
+The inventor of the Pringles can is buried in one.

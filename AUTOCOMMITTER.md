@@ -1,1 +1,1 @@
-You can hear a blue whale’s heartbeat from over 2 miles away.
+Hot water freezes faster than cold water — it’s called the Mpemba effect.

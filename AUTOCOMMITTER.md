@@ -1,1 +1,1 @@
-The inventor of the Pringles can is buried in one.
+lemons float in water but limes sink.

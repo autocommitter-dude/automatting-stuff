@@ -1,1 +1,1 @@
-lemons float in water but limes sink.
+Coca-Cola would be green without coloring.

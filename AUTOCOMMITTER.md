@@ -1,1 +1,1 @@
-The dot over the "i" and "j" is called a tittle.
+A bolt of lightning travels at about 270,000 mph.

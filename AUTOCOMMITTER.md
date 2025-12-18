@@ -1,1 +1,1 @@
-Avocados are toxic to birds.
+Scotland has 421 words for "snow."

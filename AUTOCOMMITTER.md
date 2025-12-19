@@ -1,1 +1,1 @@
-A bolt of lightning travels at about 270,000 mph.
+Avocados are toxic to birds.

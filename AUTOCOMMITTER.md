@@ -1,1 +1,1 @@
-Hot water freezes faster than cold water — it’s called the Mpemba effect.
+Alaska is the state with the highest percentage of people who walk to work.

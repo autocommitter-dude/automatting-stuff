@@ -1,1 +1,1 @@
-Scotland has 421 words for "snow."
+Cows have best friends and get stressed when separated.

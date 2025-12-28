@@ -1,1 +1,1 @@
-The inventor of the microwave received only $2 for his discovery.
+You can hear a blue whale’s heartbeat from over 2 miles away.

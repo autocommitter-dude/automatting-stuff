@@ -1,1 +1,1 @@
-Alaska is the state with the highest percentage of people who walk to work.
+The inventor of the microwave received only $2 for his discovery.

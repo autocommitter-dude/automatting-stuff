@@ -1,1 +1,1 @@
-Some cats are allergic to humans.
+Hot water freezes faster than cold water — it’s called the Mpemba effect.
